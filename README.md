@@ -1,2 +1,3 @@
 # Enkhgegee_Final_Project
-![Uploading Gray Simplified Professional Landscape University Research Poster.png…]()
+
+![final_poster](https://github.com/user-attachments/assets/9fbf6cc6-20f2-46c9-9758-8d1194143486)
